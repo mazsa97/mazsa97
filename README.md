@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mazsa97
 - 👀 I’m interested in Web Development, Software Development.
 - 🌱 I’m currently learning and improving myself in the upper professions.
-- 📫 How to reach me: szakacsmark.hu, facebook.com/szakacs.mark.7
+- 📫 How to reach me: szakacsmark.hu, or facebook.com/szakacs.mark.7
 
